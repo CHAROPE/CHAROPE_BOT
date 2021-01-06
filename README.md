@@ -1,1 +1,0 @@
-# CHAROPE_BOT
